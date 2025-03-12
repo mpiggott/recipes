@@ -2,7 +2,7 @@
 
 *italian, pasta, vegetarian*
 
-** 2 Servings
+**2 Servings**
 
 ---
 
